@@ -1,0 +1,1 @@
+# basedhardware-community-campaign
