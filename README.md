@@ -1,1 +1,1 @@
-# basedhardware-community-campaign
+# based hardware
